@@ -1,0 +1,1 @@
+tut koroche i git practice i nemnogo go
